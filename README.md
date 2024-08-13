@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MahmoudAyman14 FCAI third level student Artificial intelligence department in Cairo University
+- 👋 Hi, I’m @MahmoudAyman14 FCAI Fresh Graduate Artificial intelligence department in Cairo University
 - 👀 I’m interested in AI and technology ...
 - 📫 How to reach me Linkedin: https://www.linkedin.com/in/mahmoud-ayman-38084a215
 
